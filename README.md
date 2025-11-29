@@ -6,7 +6,7 @@
 
 ## info
 
-sunny/_ivan_ , he/she , 6teen (09) , viet/eng !!!
+sunny/_ivan_ , he/she, viet/eng !!!
 pls pls int , im lonely sobsob
 
 ## byi
