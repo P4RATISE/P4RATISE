@@ -12,6 +12,11 @@ sunny/_ivan_ , he/she , viet/eng !!!
 <p>I LOVE MATCHING !! please match w me ok? ill lit tweak in joy</p>
 <p>int w me pleasee !! i dont bite <s>but ill be so nervous STOPP</s></p>
 
+## interests
+<p>currently hyperfixating on alnst !! </p>
+<p>other interests: dandadan, gsgw, tshd, gi, hsr, ect.</p>
+<p>please PLEASEE hmu if we share any similar interests .. esp alnst ok? ok...</p>
+
 ## dni
 <p>basic dni critera</p>
 <p>proshippers</p>
