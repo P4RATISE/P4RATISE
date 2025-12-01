@@ -6,11 +6,16 @@
 
 ## info
 
-sunny/_ivan_ , he/she, viet/eng !!!
-pls pls int , im lonely sobsob
+sunny/_ivan_ , he/she , viet/eng !!! 
+<p>i am an (decora) ivan <u>fictkin</u>, till yume ..</p>
+<p>im very shy at first int, but eventually ill warm up to you as we get closer</p>
+<p>I LOVE MATCHING !! please match w me ok? ill lit tweak in joy</p>
+<p>int w me pleasee !! i dont bite <s>but ill be so nervous STOPP</s></p>
 
-## byi
- i am an anxious person. i rarely int first. replies might be slow or nonexistent. im rude as a way of showing affection. i make explicit/sexual or kys/kms jokes. tell me if you need tonetags. everything platonic as i have a gf lol ... offtab 80% of the time so i may miss your msg. ivan fictkin, currently interested in alnst, dandadan, gsgw, hyv games rn. ALSO im so sane for till n luka rn heh.... (trust)
-
- ## dni
- basic dni critera. proshippers. -13. jokes that only consist of putting down others/me. problematic=cool. luka hater. mizitill shipper. other than that just dont b a weirdo & i wont ignore
+## dni
+<p>basic dni critera</p>
+<p>proshippers</p>
+<p>people who are 13 and below</p>
+<p>if you make jokes that only consist of putting down others/me</p>
+<p><u>luka haters / mizitill shippers</u></p>
+<p>other than that just dont b a weirdo & i wont ignore !</p>
