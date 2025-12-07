@@ -7,7 +7,7 @@
 ## info
 
 sunny/_ivan_ , he/she , viet/eng !!! 
-<p>i am an (decora) ivan <u>fictkin</u>, till yume ..</p>
+<p>i am an (decora) ivan <u>fictkin</u>, luka n till yume ..</p>
 <p>im very shy at first int, but eventually ill warm up to you as we get closer</p>
 <p>I LOVE MATCHING !! please match w me ok? ill lit tweak in joy</p>
 <p>int w me pleasee !! i dont bite <s>but ill be so nervous STOPP</s></p>
